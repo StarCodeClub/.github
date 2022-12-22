@@ -6,7 +6,7 @@
 [`Klop233`](https://lolicon.fit) 
 [`LiChris93`](https://github.com/LiChris93) 
 [`xiaomu18`](https://github.com/xiaomu18) 
-[`Qiu_Naruto`](https://github.com/Qiumingskj) 
+[`Qiu_Naruto`](https://qn.mccmhc.top) 
 [`wangxyper`](https://github.com/wangxyper) 
 
 注: 目前服务器还未开放
